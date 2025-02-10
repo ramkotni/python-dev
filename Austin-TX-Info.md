@@ -57,3 +57,45 @@ HOTELS.COM
 Quality Inn
 Leander, TX
 Found at 1000 E Whitestone Blvd, this hotel offers free breakfast, free parking, and an outdoor pool. Phone: (512) 259-8000. 
+
+
+=====
+
+Holiday Inn --247 W Metro Dr, Leander, TX 78641 - (512) 690-5678
+Meet Manager - Monday to Friday 10-7 pm
+
+Quality Inn - 300 E Whitestone Blvd, Cedar Park, TX 78613 -  (512) 259-1810
+Gave my number to Front Desk - he said he will give it to manager
+they can give max of 8 hours duty.
+
+Hampton Inn Cedar Park -- 700 Central Park Dr, Cedar Park, TX 78613 -- (512) 866-9200
+Meet Manager Regular hours 8am to 5pm
+
+Hyatt Place Austin / Cedar Park - 1315 E New Hope Dr, Cedar Park, TX 78641
+(512) 337-3001 - No openings ...
+
+Hilton Garden Inn Cedar Park Austin -- 13501 Lyndhurst St Building 1, Austin, TX 78717
+(512) 506-8880 - 
+thar ald son .com -- submit a application online .. select this location
+
+Courtyard Austin Northwest/Lakeline - 12833 Ranch Rd 620 N, Austin, TX 78750
+(512) 580-0083 - come in person and collect the application ...
+
+Homewood Suites by Hilton Austin Cedar Park Lakeline - 10809 Pecan Park Blvd, Austin, TX 78750
+(512) 772-1770 -- collect the application and fill it
+
+SpringHill Suites Austin Cedar Park -- 1110 Discovery Blvd, Cedar Park, TX 78613
+(512) 260-1200 -- no openings at this time ..
+
+La Quinta Inn & Suites by Wyndham Austin - Cedar Park -- 1010 E Whitestone Blvd, Cedar Park, TX 78613
+(512) 379-7218  --- laquinta in  site .. apply .. call apply online .. 6 am Stephene Manager ..
+
+
+
+
+
+
+
+
+
+
